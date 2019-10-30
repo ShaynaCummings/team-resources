@@ -9,7 +9,7 @@ Nothing fancy is needed here - you can choose to either treat this as more of a 
 The main topics we’d like you to cover are listed below, with some questions underneath each to get started. You don’t have to answer any/all of these questions; they are just prompts to get you thinking.
 
 
-**Your previous educatio**
+**Your previous education**
 * When you were little, what did you want to be when you grew up?
 * If you could meet your 8-year-old self, how do you think they would react to what you are doing in your career now?
 * How do you think what you decided to focus on in school (or college, or grad school, etc) shaped your present career?
