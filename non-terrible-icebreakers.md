@@ -11,10 +11,15 @@ On a quest to find the least cringe-y and cliche icebreakers
 - Who was your favorite teacher and why?
 - What's your favorite place to visit? (or one of your top 5 if that's too hard)
 - What is your happiest holiday memory?
+- What is your funniest story from when you were younger?
 - What is one thing you'd tell your 12 year old self? Your 18 year old self?
 - If you had to be reincarnated as a non-human, what would you be?
 - If you had to teach a class on one thing, what would you teach?
 - If you could pick up a new skill in an instant, what would it be?
+- What have you read/watched/listened to lately that you really enjoyed?
+- What was the first concert you went to / first music you were really into?
+- Who inspires you?
+- What's your favorite way to relax?
 
 ## Bonding over food
 
@@ -22,10 +27,13 @@ On a quest to find the least cringe-y and cliche icebreakers
 - If you could only drink one beverage for the rest of your life (besides water) and it had no negative impact on your health, what would it be?
 - If you could only eat rice *or* noodles for the rest of your life, but not both, which would you choose?
 - What's the grossest thing you've eaten?
+- What are your feelings about brunch?
 
 ## Quirky
 
+- Assuming a multiverse, what is an alternate-reality version of you doing right now?
 - What emoji do you use the most?
+- What's your favorite gif?
 - NASA is taking volunteers for a one-way trip to Mars. Do you go?
 - What's the worst fashion choice you ever made?
 - What's your favorite smell?
@@ -33,3 +41,4 @@ On a quest to find the least cringe-y and cliche icebreakers
 - What's your least favorite icebreaker? (very meta)
 - Are hotdogs sandwiches? Are burritos? Why or why not?
 - Is [the dress](https://en.wikipedia.org/wiki/The_dress) blue & black or white & gold?
+- Do you prefer planes, trains, or automobiles?
